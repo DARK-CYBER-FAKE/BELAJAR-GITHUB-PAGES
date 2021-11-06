@@ -5,7 +5,7 @@
 
 <h2 style="text-align: left;">~<span style="font-size: large;">Created By Fazri</span></h2><p style="text-align: left;"><span style="font-size: x-small;">&nbsp; &nbsp; &nbsp; &nbsp;</span><span style="font-size: xx-small;">created 2021- Pemula Om</span></p>
 
-
+******
 
 ➪<a href="https://wa.me/62857904897032" target="_blank">DOWNLOAD</a>
-# https://dark-cyber-fake.github.io/BELAJAR-GITHUB-PAGES/
+
