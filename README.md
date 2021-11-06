@@ -12,9 +12,13 @@
 🔰 Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
 <p>
-  <p>
+</span>
+    
 # SCRIPT BOT WHATSAPP
 
+  
+  SILAHKAN DOWNLOAD DI BAWAH 
+  
 **Link Sc 1 (Sabtu,6Nov,2021)**
 ➪<a href="https://wa.me/62857904897032" target="_blank">DOWNLOAD</a>
 
