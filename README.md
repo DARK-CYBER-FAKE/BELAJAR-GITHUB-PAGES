@@ -8,13 +8,12 @@
 
 # My WhatsApp
 
-🔰 https://wa.me/62857904897032 🔰
-⚡ THE STRES BOT⚡
-🔰Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
+🔰 https://wa.me/62857904897032 🔰 
+🔰 Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
 
 # SCRIPT BOT WHATSAPP
 
-
+**Link Sc 1 (Sabtu,6Nov,2021)**
 ➪<a href="https://wa.me/62857904897032" target="_blank">DOWNLOAD</a>
 
