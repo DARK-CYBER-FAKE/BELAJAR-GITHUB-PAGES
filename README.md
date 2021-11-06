@@ -8,7 +8,7 @@
 
 # My WhatsApp
 
-🔰 https://wa.me/62857904897032 🔰 
+🔰 https://wa.me/62857904897032 🔰 /span
 🔰 Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
 
