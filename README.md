@@ -8,7 +8,8 @@
 
 # My WhatsApp
 
-https://wa.me/62857904897032 <p/p>
+🔰 https://wa.me/62857904897032 🔰
+⚡ THE STRES BOT⚡
 🔰Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
 
