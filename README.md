@@ -11,7 +11,8 @@
 🔰 https://wa.me/62857904897032 🔰 <p>
 🔰 Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
-
+<p>
+  <p>
 # SCRIPT BOT WHATSAPP
 
 **Link Sc 1 (Sabtu,6Nov,2021)**
