@@ -15,7 +15,7 @@
 
 **Skills:Newbie** <span> </span>
 
-**FavoritDrink:Coffe <span> </span>
+**FavoritDrink:Coffe** <span> </span>
 
 
 
