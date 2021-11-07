@@ -12,14 +12,14 @@
 🔰 Jika Tidak Terjawab Artinya WhatsApp Tersebut Saya Hapus🔰
 
 <p>
-</span>
+
     
 # SCRIPT BOT WHATSAPP
 
   
-  SILAHKAN DOWNLOAD DI BAWAH <p>
-    <p>
-        </span></p>
+  SILAHKAN DOWNLOAD DI BAWAH
+    
+
         
 
   
