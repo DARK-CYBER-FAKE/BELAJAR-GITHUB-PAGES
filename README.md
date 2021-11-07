@@ -35,6 +35,8 @@
 # ScriptBotWhatsApp
 Silahkan Pilih Script Yg Kalian Inginkan Dan Tekan Teks Download Di Bawah Gambar <span> </span>
 
-<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/a/AVvXsEjhUglGe67eb_rQXIqtjS5h2SkxBlNdMcDPUyLHm6e6xwJwf_DwKJ3n2uxSI-wsYQmKvoib3c93NBUy9z0V5d8qUw59o8NpRFa7JRvy4coyDisXzuZg8yYPUxynvKFSi4B363s-xcMXFBesrmTd8pQpg0-VOyM2DYj9PgyRZpWHSJksOjaEN7htQioz=s736" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" data-original-height="736" data-original-width="736" height="200" src="https://blogger.googleusercontent.com/img/a/AVvXsEjhUglGe67eb_rQXIqtjS5h2SkxBlNdMcDPUyLHm6e6xwJwf_DwKJ3n2uxSI-wsYQmKvoib3c93NBUy9z0V5d8qUw59o8NpRFa7JRvy4coyDisXzuZg8yYPUxynvKFSi4B363s-xcMXFBesrmTd8pQpg0-VOyM2DYj9PgyRZpWHSJksOjaEN7htQioz=w200-h200" width="200" /></a></div><br />
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/a/AVvXsEjhUglGe67eb_rQXIqtjS5h2SkxBlNdMcDPUyLHm6e6xwJwf_DwKJ3n2uxSI-wsYQmKvoib3c93NBUy9z0V5d8qUw59o8NpRFa7JRvy4coyDisXzuZg8yYPUxynvKFSi4B363s-xcMXFBesrmTd8pQpg0-VOyM2DYj9PgyRZpWHSJksOjaEN7htQioz=s736" imageanchor="1" style="clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" data-original-height="736" data-original-width="736" height="200" src="https://blogger.googleusercontent.com/img/a/AVvXsEjhUglGe67eb_rQXIqtjS5h2SkxBlNdMcDPUyLHm6e6xwJwf_DwKJ3n2uxSI-wsYQmKvoib3c93NBUy9z0V5d8qUw59o8NpRFa7JRvy4coyDisXzuZg8yYPUxynvKFSi4B363s-xcMXFBesrmTd8pQpg0-VOyM2DYj9PgyRZpWHSJksOjaEN7htQioz=w200-h200" width="200" /></a></div><br /> <span> </span>
+
+~Script AkhirYuzu <span> </span>
  <p><a href="https://apkadmin.com/gwqi08pqcwkx/__ByFazri.zip.html" target="_blank">𒊹︎︎︎𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍</a></p>
  
